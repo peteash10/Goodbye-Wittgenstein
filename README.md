@@ -1,6 +1,9 @@
 #Wittgenstein wandelt wehmütig widriger winde wegen Wienwärts 
+
 Pete Ashton  
 November 2016  
+
+##Extended Statement
 
 During his residency at [Salzamt](http://salzamt-linz.at) for the [Goodbye Wittgenstein](http://qujochoe.org/goodbye-wittgenstein-part-2/) project, Pete Ashton has been exploring Linz using the phrase [Ludwig Wittgenstein](https://en.wikipedia.org/wiki/Ludwig_Wittgenstein) was taunted with by fellow students at the [Realschule](https://en.wikipedia.org/wiki/Realschule) on [Steingasse](https://www.google.co.uk/maps/place/Steingasse+6,+4020+Linz,+Austria/@48.3014441,14.2823591,17z/data=!4m13!1m7!3m6!1s0x4773978359e3cb37:0xab3d3afc3c5598b4!2sSteingasse,+4020+Linz,+Austria!3b1!8m2!3d48.3014441!4d14.2845478!3m4!1s0x47739784a26ff2d9:0x8a1c2f3a873bf958!8m2!3d48.3020645!4d14.2856296?hl=en): *Wittgenstein wandelt wehmütig widriger winde wegen Wienwärts* ("Wittgenstein strolls wistfully Vienna-wards due to adverse winds". Finding the direction of Vienna from the school, Ashton proceeded to walk as Wittgenstein might have, wistfully taking in this sample of historic, residential, municipal and industrial Linz, until hitting the Danube. 
 
