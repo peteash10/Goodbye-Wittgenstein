@@ -27,7 +27,7 @@ Next to this is a [hardcover publication](http://www.lulu.com/shop/pete-ashton/w
 
 ![](https://raw.githubusercontent.com/peteash10/Goodbye-Wittgenstein/master/stuff/_DSC5735.jpg)
 
-[Pete Ashton](http://peteashton.com) is an artist based in Birmingham, UK and a fellow at [Birmingham Open Media](http://www.bom.org.uk), a collaborative workspace at the intersection of art, technology and science. His practice explores the role of cameras as post-photographic data-capture devices, amongst other things. He lives with his wife, [Fiona](http://fionacullinan.com), and [three rabbits](https://www.instagram.com/bunminster/), Bunminster Fuller, Clementine and Joy. 
+[Pete Ashton](http://peteashton.com) is a multimedia artist creating transformative site-specific work. His practice explores the role of cameras as post-photographic data-capture devices, amongst other things. He's an inaugural fellow at [Birmingham Open Media](http://www.bom.org.uk), a collaborative workspace at the intersection of art, technology and science. He lives In Birmingham, NW Europe, with his wife, [Fiona](http://fionacullinan.com), and [three rabbits](https://www.instagram.com/bunminster/), Bunminster Fuller, Clementine and Joy. 
 
 ##Exhibition documentation photographs
 
