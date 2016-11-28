@@ -31,10 +31,14 @@ Next to this is a [hardcover publication](http://www.lulu.com/shop/pete-ashton/w
 
 ##Exhibition documentation photographs
 
-<a data-flickr-embed="true"  href="https://www.flickr.com/photos/peteashton/30414362424/in/dateposted-public/" title="GW-Exhib-Pete - 01"><img src="https://c1.staticflickr.com/6/5562/30414362424_3f6e9e89a7_z.jpg" width="640" height="424" alt="GW-Exhib-Pete - 01"></a><script async src="//embedr.flickr.com/assets/client-code.js" charset="utf-8"></script>
+[All photos from the exhibition are in this Flickr set.](https://www.flickr.com/photos/peteashton/albums/72157674623808182)
 
-<a data-flickr-embed="true"  href="https://www.flickr.com/photos/peteashton/30867876980/in/dateposted-public/" title="GW-Exhib-Pete - 05"><img src="https://c5.staticflickr.com/6/5832/30867876980_3e301a3670_z.jpg" width="640" height="424" alt="GW-Exhib-Pete - 05"></a><script async src="//embedr.flickr.com/assets/client-code.js" charset="utf-8"></script>
+[All photos of my work and process are in this Flickr set.](https://www.flickr.com/photos/peteashton/albums/72157672997179104)
 
-<a data-flickr-embed="true"  href="https://www.flickr.com/photos/peteashton/31199719656/in/dateposted-public/" title="GW-Exhib-Pete - 12"><img src="https://c1.staticflickr.com/6/5796/31199719656_54e5122036_z.jpg" width="640" height="424" alt="GW-Exhib-Pete - 12"></a><script async src="//embedr.flickr.com/assets/client-code.js" charset="utf-8"></script>
+<a data-flickr-embed="true"  href="https://www.flickr.com/photos/peteashton/30414362424/in/dateposted-public/" title="GW-Exhib-Pete - 01"><img src="https://c1.staticflickr.com/6/5562/30414362424_3f6e9e89a7_b.jpg" width="640" height="424" alt="GW-Exhib-Pete - 01"></a>
 
-![](https://raw.githubusercontent.com/peteash10/Goodbye-Wittgenstein/master/stuff/IMG_5358.JPG)
+<a data-flickr-embed="true"  href="https://www.flickr.com/photos/peteashton/30867876980/in/dateposted-public/" title="GW-Exhib-Pete - 05"><img src="https://c5.staticflickr.com/6/5832/30867876980_3e301a3670_b.jpg" width="640" height="424" alt="GW-Exhib-Pete - 05"></a>
+
+<a data-flickr-embed="true"  href="https://www.flickr.com/photos/peteashton/31199719656/in/dateposted-public/" title="GW-Exhib-Pete - 12"><img src="https://c1.staticflickr.com/6/5796/31199719656_54e5122036_b.jpg" width="640" height="424" alt="GW-Exhib-Pete - 12"></a>
+
+<a data-flickr-embed="true"  href="https://www.flickr.com/photos/peteashton/30487603623/in/dateposted-public/" title="GW-Exhib-Pete - 16"><img src="https://c8.staticflickr.com/6/5701/30487603623_a12af8c49e_b.jpg" width="640" height="424" alt="GW-Exhib-Pete - 16"></a>
