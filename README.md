@@ -43,4 +43,6 @@ Next to this is a [hardcover publication](http://www.lulu.com/shop/pete-ashton/w
 
 <a data-flickr-embed="true"  href="https://www.flickr.com/photos/peteashton/31199719656/in/dateposted-public/" title="GW-Exhib-Pete - 12"><img src="https://c1.staticflickr.com/6/5796/31199719656_54e5122036_b.jpg" alt="GW-Exhib-Pete - 12"></a>
 
-<a data-flickr-embed="true"  href="https://www.flickr.com/photos/peteashton/30487603623/in/dateposted-public/" title="GW-Exhib-Pete - 16"><img src="https://c8.staticflickr.com/6/5701/30487603623_a12af8c49e_b.jpg" alt="GW-Exhib-Pete - 16"></a>
+![](https://raw.githubusercontent.com/peteash10/Goodbye-Wittgenstein/master/stuff/31180533001_b300347960_k.jpg)
+
+![](https://raw.githubusercontent.com/peteash10/Goodbye-Wittgenstein/master/stuff/30487606753_b55a35b5c6_k.jpg)
