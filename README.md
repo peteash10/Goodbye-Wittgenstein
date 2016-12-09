@@ -3,7 +3,7 @@
 Pete Ashton  
 November 2016 
 
-[Goodbye Wittgenstein](http://qujochoe.org/goodbye-wittgenstein-part-2/) is an ongoing collaborative project between the [qujOchÖ](http://qujochoe.org/) artist collective in Linz, Austria and [A3 Project Space](http://a3projectspace.org/) in Birmingham, UK. Along with [Trevor Pitt](http://www.podprojects.org/), [Emily Warner](http://emily-warner.com/) and [Mike Johnstone](http://mikeinmono.blogspot.co.at/), I was invited by A3 to join a month-long residency at [Atelierhaus Salzamt](http://salzamt-linz.at), a residential studio in central Linz, to produce work responding to the philosopher [Ludwig Wittgenstein](https://en.wikipedia.org/wiki/Ludwig_Wittgenstein)'s time in Linz and Birmingham. An exhibition of our work opened on November 23rd 2016. 
+[Goodbye Wittgenstein](http://qujochoe.org/goodbye-wittgenstein-part-2/) is an ongoing collaborative project between the [qujOchÖ](http://qujochoe.org/) artist collective in Linz, Austria and [A3 Project Space](http://a3projectspace.org/) in Birmingham, UK. Along with [Trevor Pitt](http://www.podprojects.org/), [Emily Warner](http://emily-warner.com/) and [Mike Johnston](http://mikeinmono.blogspot.co.at/), I was invited by A3 to join a month-long residency at [Atelierhaus Salzamt](http://salzamt-linz.at), a residential studio in central Linz, to produce work responding to the philosopher [Ludwig Wittgenstein](https://en.wikipedia.org/wiki/Ludwig_Wittgenstein)'s time in Linz and Birmingham. An exhibition of our work opened on November 23rd 2016. 
 
 ##Extended Statement
 
